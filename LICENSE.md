@@ -1,4 +1,4 @@
-# 
+# Automático GlassWire herramientas para Mac OS | Mejor GlassWire herramientas para PC Windows. Con red global de servidores y notas seguras — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
